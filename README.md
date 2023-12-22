@@ -1,4 +1,4 @@
-Hello dear Reader,
+Hello Mortals,
 
 it is me, Skerre.
 
